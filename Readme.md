@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **rishabh2333g@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1ISEk1m6ZfHmH47WAWz0bBCsry4VHgQBEjaQh0fqMOGc/edit#heading=h.bqhgs2hec89v](https://docs.google.com/document/d/1ISEk1m6ZfHmH47WAWz0bBCsry4VHgQBEjaQh0fqMOGc/edit#heading=h.bqhgs2hec89v)
+- 📄 Know about my experiences [Resume](https://docs.google.com/document/d/1ISEk1m6ZfHmH47WAWz0bBCsry4VHgQBEjaQh0fqMOGc/edit#heading=h.bqhgs2hec89v)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
